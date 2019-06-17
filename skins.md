@@ -2,10 +2,10 @@
 
 # Click on the skin name to download~`
 # [ikanyai](https://mizaruyea.s-ul.eu/adDoFVLv)
-![](https://osu.ppy.sh/ss/13374078)
+![](https://osu.ppy.sh/ss/13386428)
 
 # [genny - uus](https://mizaruyea.s-ul.eu/QSSTmq2u)
-![](https://osu.ppy.sh/ss/13333232)
+![](https://osu.ppy.sh/ss/13386439)
 
 # [eloJere Nakano](https://mizaruyea.s-ul.eu/dZki4bt1)
 ![](https://osu.ppy.sh/ss/13317973)
