@@ -8,13 +8,13 @@
 ![](https://osu.ppy.sh/ss/13386439)
 
 # [eloJere Nakano](https://mizaruyea.s-ul.eu/dZki4bt1)
-![](https://osu.ppy.sh/ss/13317973)
+![](https://osu.ppy.sh/ss/13386443)
 
-# [Amaetric](https://mizaruyea.s-ul.eu/CO9HlFm8)
-![](https://osu.ppy.sh/ss/13314129)
+# [Amaestric](https://mizaruyea.s-ul.eu/CO9HlFm8)
+![](https://osu.ppy.sh/ss/13386452)
 
 # [- bahamete](https://mizaruyea.s-ul.eu/MMibaXLM)
-![](https://osu.ppy.sh/ss/13314142)
+![](https://osu.ppy.sh/ss/13386458)
 
 # [mathyu hey dt edit](https://mizaruyea.s-ul.eu/BB4dkIMG)
-![](https://osu.ppy.sh/ss/13174934)
+![](https://osu.ppy.sh/ss/13386468)
