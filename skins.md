@@ -1,6 +1,9 @@
 # Abyssal Cool Osu Skins 
 
 # Click on the skin name to download~`
+# [bloo x beast](https://mizaruyea.s-ul.eu/XQ6OCyvc)
+![]()
+
 # [ikanyai](https://mizaruyea.s-ul.eu/adDoFVLv)
 ![](https://osu.ppy.sh/ss/13386428)
 
