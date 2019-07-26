@@ -2,7 +2,7 @@
 
 # Click on the skin name to download~`
 # [bloo x beast](https://mizaruyea.s-ul.eu/XQ6OCyvc)
-![]()
+![](https://cdn.discordapp.com/attachments/436370382706966530/604458282098229248/e65a.png)
 
 # [ikanyai](https://mizaruyea.s-ul.eu/adDoFVLv)
 ![](https://osu.ppy.sh/ss/13386428)
