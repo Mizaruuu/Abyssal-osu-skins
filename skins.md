@@ -1,6 +1,10 @@
 # Abyssal Cool Osu Skins 
 
 # Click on the skin name to download~`
+
+# [Amaestric edit](https://abyss.s-ul.eu/ci3fpLVK)
+![](https://i.imgur.com/dnbqjhg.png)
+
 # [bloo x beast](https://mizaruyea.s-ul.eu/XQ6OCyvc)
 ![](https://cdn.discordapp.com/attachments/436370382706966530/604458282098229248/e65a.png)
 
