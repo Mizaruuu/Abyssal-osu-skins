@@ -5,6 +5,9 @@
 # [mizaru - zzz dt](https://mizaruyea.s-ul.eu/1epm0OCA)
 ![](https://i.imgur.com/IqTqo8R.png)
 
+# [Amaestric NORMIE EDIT](https://abyss.s-ul.eu/SmgMqomF)
+![](https://osu.ppy.sh/ss/15632520/5263)
+
 # [Amaestric edit](https://abyss.s-ul.eu/ci3fpLVK)
 ![](https://i.imgur.com/dnbqjhg.png)
 
