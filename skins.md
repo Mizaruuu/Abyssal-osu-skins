@@ -2,6 +2,9 @@
 
 # Click on the skin name to download~`
 
+# [Abyssal Galaxy](https://abyss.s-ul.eu/iTOKO9nK)
+![](https://osu.ppy.sh/ss/16066569/e04e)
+
 # [Amaestric RGB](https://abyss.s-ul.eu/SmgMqomF)
 ![](https://osu.ppy.sh/ss/15632520/5263)
 
