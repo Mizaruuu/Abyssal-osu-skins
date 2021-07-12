@@ -2,8 +2,8 @@
 
 # Click on the skin name to download~`
 
-# [Amaestric](https://abyss.s-ul.eu/pcmKJazx)
-![](https://osu.ppy.sh/ss/16550766/1063)
+# [Amaestric [1.2]](https://abyss.s-ul.eu/YGKKLNqw)
+![](https://osu.ppy.sh/ss/16822694/9e86)
 
 # [Rafal Karpiak Mode](https://abyss.s-ul.eu/F1HecRNU)
 ![](https://osu.ppy.sh/ss/16550770/1fe3)
