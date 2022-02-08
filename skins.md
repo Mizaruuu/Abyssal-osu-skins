@@ -22,3 +22,6 @@
 
 # [Abyssal Galaxy](https://abyss.s-ul.eu/iTOKO9nK)
 ![](https://osu.ppy.sh/ss/16066569/e04e)
+
+# [rammu hidden 2](https://www.dropbox.com/s/hf726mli83nnlss/rammu%20hidden.osk?dl=0)
+![](https://osu.ppy.sh/ss/17533668/47be)
